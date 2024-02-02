@@ -7,3 +7,5 @@ The dynamics and requirements in construction projects are increasing rapidly, w
 Contact : Paul Curschellas pcurschellas@gmail.com
 
 All data may be used freely. The SIA standards may be used from 02.02.-04.02.2024 - after that they must be deleted and may not be forwarded. For use after 04.2024, a request must be made to SIA.  Please confirm your request for access to this data.
+
+https://drive.google.com/drive/folders/1Wojk9KCYPfAHd4a2t7xf_cwSxah2VNk1?usp=drive_link
